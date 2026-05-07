@@ -1,4 +1,4 @@
-
+steal the brainrot base Scripts hidden offers the most advanced steal the brainrot base Script, with no cooldown and auto-farm. Perfect for
 
 
 
